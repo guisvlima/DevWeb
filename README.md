@@ -1,4 +1,4 @@
 # Tarot da Katucha :crystal_ball:
-**Saiba sobre seu futuro**
+**Saiba** sobre seu futuro**
 ---
 
