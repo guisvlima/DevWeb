@@ -1,1 +1,1 @@
-# Tarot da Katucha :sparkles:
+# Tarot da Katucha :crystal_ball:
